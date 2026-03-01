@@ -1,3 +1,7 @@
+
+<img width="1920" height="1080" alt="Picsart_26-03-02_01-13-43-183" src="https://github.com/user-attachments/assets/cef6fa67-3d23-48dd-aaed-73a85203c748" />
+
+
 # Infinity-X-3.7-QPR2-Unofficial-for-spaced
 
 ## 🚀 Performance & System
